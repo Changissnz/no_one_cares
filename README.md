@@ -30,3 +30,9 @@ Die Handelsföderation hat den Krieg erklärt. Und sie haben viele Täuschungsma
 ### Financial Failures or Famine, You Decide 
 
 Ich schätze, das ist es, was Freiheit und Unabhängigkeit bedeuten.
+
+### The Evidence Is Unaffordability
+
+Das klingt nach viel kognitiver Dissonanz. Wer weiß? Ich kann die Unerschwinglichkeit nicht erklären. Selbst nachdem die Handelsföderation den Krieg erklärt hat, ist die Höflichkeit noch vorhanden. Die Ehrlichkeit hingegen fehlt.
+
+Warum ist in den USA nichts mehr bezahlbar?
