@@ -21,7 +21,7 @@ Geld ist nichts als ein von Menschen geschaffenes Konstrukt. Solange die Compute
 
 Die russische Desinformationsmaschinerie bricht unaufhaltsam zusammen. Sie wird in kürzester Zeit am Boden liegen, und die Verzerrung der Wahrnehmung bricht mit ihr zusammen. Die Überreste werden alle noch Jahrzehnte lang verfolgen.
 
-### Es gibt immer einen Grund, aber nicht immer eine Entschuldigung
+### There's Always A Reason, Not Always An Excuse
 
 Manche Vorkehrungen sind darauf ausgelegt, Fehlschläge zu provozieren. Und dann kommen die Profiteure, verdienen Geld, und es bleiben kaum Beweise zurück, nur Trümmer, erbärmliche Ruinen, die man nur als Schwäche oder Unglück abtun kann. Die Sieger nennen es Ausreden. Wenn die Sieger doch nur ewig leben könnten, damit das wahr wäre, nicht nur ihre Geschichtsschreibung.
 
