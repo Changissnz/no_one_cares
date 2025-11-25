@@ -1,5 +1,6 @@
 # no_one_cares
 ## These sentences may or may not reflect who I am as a person. 
+## Consume with discretion. 
 
 ### A Courageous Speech
 Was ich mache, ist keine Kunst. Und trotzdem haben sie mir nie einen Cent bezahlt. Weil jedes Produkt fragwürdig ist. Weil ich fragwürdig bin. Und man hat jede Gelegenheit genutzt, mich infrage zu stellen. Es ist Ausbeutung. Verleumdung. Spott. Schweigen.
