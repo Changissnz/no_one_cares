@@ -20,3 +20,13 @@ Exzellenz erfordert zunächst, so viel Leid wie nur möglich zu ertragen. Nur du
 Geld ist nichts als ein von Menschen geschaffenes Konstrukt. Solange die Computerfabriken in Betrieb sind, kann immer mehr davon gedruckt werden. Es kann daher niemals ein Hindernis sein.
 
 Die russische Desinformationsmaschinerie bricht unaufhaltsam zusammen. Sie wird in kürzester Zeit am Boden liegen, und die Verzerrung der Wahrnehmung bricht mit ihr zusammen. Die Überreste werden alle noch Jahrzehnte lang verfolgen.
+
+### Es gibt immer einen Grund, aber nicht immer eine Entschuldigung
+
+Manche Vorkehrungen sind darauf ausgelegt, Fehlschläge zu provozieren. Und dann kommen die Profiteure, verdienen Geld, und es bleiben kaum Beweise zurück, nur Trümmer, erbärmliche Ruinen, die man nur als Schwäche oder Unglück abtun kann. Die Sieger nennen es Ausreden. Wenn die Sieger doch nur ewig leben könnten, damit das wahr wäre, nicht nur ihre Geschichtsschreibung.
+
+Die Handelsföderation hat den Krieg erklärt. Und sie haben viele Täuschungsmanöver und Ablenkungen eingesetzt. Schade, dass es so viele davon gibt, dass Spuren zurückbleiben.
+
+### Financial Failures or Famine, You Decide 
+
+Ich schätze, das ist es, was Freiheit und Unabhängigkeit bedeuten.
