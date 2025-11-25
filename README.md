@@ -36,3 +36,7 @@ Ich schätze, das ist es, was Freiheit und Unabhängigkeit bedeuten.
 Das klingt nach viel kognitiver Dissonanz. Wer weiß? Ich kann die Unerschwinglichkeit nicht erklären. Selbst nachdem die Handelsföderation den Krieg erklärt hat, ist die Höflichkeit noch vorhanden. Die Ehrlichkeit hingegen fehlt.
 
 Warum ist in den USA nichts mehr bezahlbar?
+
+### No One Owes You Anything, Man 
+
+Also frag nicht mich. Frag deine verschuldete Demokratie. Ihr habt eure Kinder an die Handelsföderation verkauft und erwartet nun, dass sie euch als menschliche Schutzschilde dienen. 
